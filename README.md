@@ -1,1 +1,7 @@
-# Oluwafunke
+- Hi, I'm @Oluwafunke
+- I am interested in Web Development
+- I am currently learning Web Development
+- I am looking to collaborate on projects and ideas
+- How to reach me [oaladesuyi@gmail.com]
+- Pronouns: She/ her
+- Fun Fact: I love watching Korean movies
